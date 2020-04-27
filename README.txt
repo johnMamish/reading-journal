@@ -14,3 +14,5 @@ Files are named in this way
     <date finished>-<book-author>-<book-title>.txt
 
 if I can't remember what date I finished the book on, the day (or month) is set to 00. Dates might not be totally accurate, that's fine.
+
+Some files might be empty. In that case, it's a record that I read the book but didn't have the time or desire to reflect on it.
