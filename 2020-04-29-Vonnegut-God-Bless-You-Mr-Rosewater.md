@@ -37,3 +37,16 @@ I still crammed the book down my throat in a single 3-hour sitting, so it couldn
 >P.S. Who really does run this crazy country? These creeps [with all the money] sure don't.
 
   -- God Bless you Mr. Rosewater, Chapter 11
+
+
+Some themes in the book
+
+  - Money is equated with magic.
+
+    > Eliot fell silent, raised his tennis racket as though it were a magic wand.
+
+    chapter 14
+
+    >
+
+  - Whether or not people are useful is a recurring theme. The book's prose shows how inherited money can make people lazy sacks of nothing. Some of the book's characters argue that giving out welfare makes people lazy and useless. Trout's defense of Eliot's sanity at the end of the book nakedly invokes the idea. It's mentioned in a Kilgore Trout book in chapter 2.
