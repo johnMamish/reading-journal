@@ -5,7 +5,11 @@ Olympic single sculls hopeful, Brad, loses Olympic single scull trials and is fo
 
 Instead, Brad strikes out on his own, recruiting acquaintance, Harry Parker rowing camp flunkie, and ex-doubles partner Paul Enquist to train with him for the 4 weeks leading up to the pre-Olympic trials. In solitude, Brad and Paul train hard on their own schedule focusing on fundamentals, racing psychology, and 500m pieces. About a week into their partnership, they join up with a different rowing camp inhabited by 3 scull and sweep quads so that they have people to race against. Brad precieves the coach of this camp to be vastly more personable than Harry and chalks some of his and Paul's success up to the gentleness and non-drama from the new coach (whereas he precieved Harry as a shit-stirrer who caused drama). Brad never seems to tire of bringing down Paul by bringing up to the reader Paul's "humble" beginnings as if Paul is lucky that he's good enough to be rowing with Brad.
 
-At the pre-Olympic trials, Paul and Brad defeat Harry's double scull and are sent to the Olympics, where they win the gold medal. During the medal ceremony, Brad's name is called as Paul's medal is presented to him causing Brad to pitch a tiny fit about it on the Olympic podium: "As my name was called over the public address system, he delicately lifted the medal off the tray and began to extend it towards Paul. I put my hand in front of the official, and motioned him towards me."
+At the pre-Olympic trials, Paul and Brad defeat Harry's double scull and are sent to the Olympics, where they win the gold medal. During the medal ceremony, Brad's name is called as Paul's medal is presented to him causing Brad to pitch a tiny fit about it on the Olympic podium: 
+
+>As my name was called over the public address system, he delicately lifted the medal off the tray and began to extend it towards Paul. I put my hand in front of the official, and motioned him towards me.
+
+ -- Assault on Lake Casitas, page 258
 
 
 God, I hate some things about the protagonist of this book. His ego is so delicate that he feels the need to constantly put down those around him. I think that's why he did so poorly at Harry's camp: he couldn't handle the damage to his ego, and the other guys could tell he was a prick, so they didn't want to work well with him. From the way he talks about Paul, I surmise that Brad bullied Paul into being submissive, which suited Brad's ego fine, allowing him to work harder.
