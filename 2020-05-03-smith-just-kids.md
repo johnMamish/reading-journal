@@ -7,7 +7,9 @@ Save for the twist that comes less than halfway through the book - in which Robe
 Over the course of the book Patti struggles as a visual artist, and in the last 70 or so pages, influenced by encounters with famous NYC musicians and poets, does an about-face and at Robert's urging focuses on spoken-word poetry which eventually evolves into rock music. In the early pages of the book, the weeks creep by slowly, but as Patti achieves fame and prepares to leave NYC, the storytelling accelerates drastically. A short coda to the book describes Robert's diagnosis with AIDS and ultimate death about 15 years after the events of the book. By this time, Patti has long moved out of NYC and is married with kids. She falls out of touch with Robert for a time, but the two become close again after his AIDS diagnosis; she begins to regularly visit him in NYC.
 
 > We were walking toward the fountain, the epicenter of activity, when an older couple stoppped and openly observed us [dressed in beatnik sandals, ragged scarves, and love beads]. Robert enjoyed being noticed, and he affectionately squeezed my hand.
+
 > "Oh, take their picture," said the woman to her bemused husband, "I think they're artists."
+
 > "Oh, go on," he shrugged. "They're just kids."
 
    -- Just Kids, page 47
