@@ -13,3 +13,5 @@ Over the course of the book Patti struggles as a visual artist, and in the last 
 > "Oh, go on," he shrugged. "They're just kids."
 
    -- Just Kids, page 47
+
+The above quote seems corny at first glance because it's the quote that gives the book its title, but I think it earns it's spot as the title of the book. They are artists. They're also just kids. No artist, inventor, or musician is a supernatural beast whose post is unattainable. They're all just people. Like me.
